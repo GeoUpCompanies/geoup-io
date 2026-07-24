@@ -1,6 +1,6 @@
 # GeoUp.io
 
-**Software & IT** in **Palma**, Spanien
+**Software & IT**, deutschlandweit tätig
 
 ## Über uns
 
